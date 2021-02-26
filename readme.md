@@ -1,1 +1,6 @@
 ![plot](./Screenshot_20201216-224024.jpg)
+![plot](./Screenshot_20201216-224029.jpg)
+![plot](./Screenshot_20201216-224034.jpg)
+![plot](./Screenshot_20201216-224045.jpg)
+![plot](./Screenshot_20201216-230152.jpg)
+![plot](./Screenshot_20201216-230156.jpg)
